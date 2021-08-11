@@ -1,4 +1,4 @@
-#  👋  Hi, I’m @itechsubhan
+#  👋  Hi, I’m @Subhan
 # 💞️   I’m looking to collaborate with people to make amazing projects
  # looking foeward to contribute on open source projects
  # reach me ... at linkedin -https://www.linkedin.com/in/mohdabdulsubhan/
